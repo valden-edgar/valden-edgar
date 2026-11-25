@@ -6,9 +6,9 @@ $${\color{#0d1117}.}$$
 
 $${\color{#0d1117}.}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="358" height="200" alt="edgar" src="https://github.com/user-attachments/assets/5b92abdb-f9b5-4508-8db7-74c20caaf167" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="358" height="200" alt="edgar" src="https://github.com/user-attachments/assets/5b92abdb-f9b5-4508-8db7-74c20caaf167" />
 
 $${\color{#0d1117}.}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&cover_image=true&theme=natemoo-re&show_offline=false&background_color=c16e3c&interchange=false&profanity=false&bar_color=656324&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&redirect=true)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&cover_image=true&theme=natemoo-re&show_offline=false&background_color=c16e3c&interchange=false&profanity=false&bar_color=656324&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&redirect=true)
 
